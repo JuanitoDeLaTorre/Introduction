@@ -11,6 +11,8 @@ Growing up partially in England was a lot of fun and sparked an early interest i
 
 **My family has lived in Utah since our time in England.**
 
+_Bernie's an honourary member of the family. Not for politics, just for the meme._
+
 ![image](https://user-images.githubusercontent.com/70331884/151615580-52e453c1-12ba-40fd-b91b-325f40a4c3eb.png)
 
 **I did a church service mission to western Canada for two years which was a lot of fun, except in the winters.**
@@ -20,6 +22,14 @@ Growing up partially in England was a lot of fun and sparked an early interest i
 **I moved to URI to study Environmental Science, a topic that piqued my interest during my undergraduate degree at Brigham Young University.**
 
 ![image](https://user-images.githubusercontent.com/70331884/151616774-64e916cd-6123-4246-be74-55bbae21a72e.png)
+
+## Hobbies
+
+**Photography**
+
+Photography has been a love of mine for over a decade. I started strong when I was 12 and haven't slowed down since then. I primarily do landscape photography, but also enjoy portraits, macro, and long exposure. I tried shooting on film once, to pay homage to the great photographers that came before me, but the process was more stressful than I anticipated.
+
+A collection of my work can be
 
 
 ## BINKS THE CAT!
