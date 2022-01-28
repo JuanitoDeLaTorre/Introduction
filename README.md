@@ -29,7 +29,7 @@ _Bernie's an honourary member of the family. Not for politics, just for the meme
 
 Photography has been a love of mine for over a decade. I started strong when I was 12 and haven't slowed down since then. I primarily do landscape photography, but also enjoy portraits, macro, and long exposure. I tried shooting on film once, to pay homage to the great photographers that came before me, but the process was more stressful than I anticipated.
 
-A collection of my work can be
+A collection of my work can be found [here](https://unsplash.com/@capturelight).
 
 
 ## BINKS THE CAT!
