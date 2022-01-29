@@ -23,14 +23,28 @@ _Bernie's an honourary member of the family. Not for politics, just for the meme
 
 ![image](https://user-images.githubusercontent.com/70331884/151616774-64e916cd-6123-4246-be74-55bbae21a72e.png)
 
-## Hobbies
+# Hobbies
 
-**Photography**
+## Photography
 
-Photography has been a love of mine for over a decade. I started strong when I was 12 and haven't slowed down since then. I primarily do landscape photography, but also enjoy portraits, macro, and long exposure. I tried shooting on film once, to pay homage to the great photographers that came before me, but the process was more stressful than I anticipated.
+Photography has been a love of mine for over a decade. I started strong when I was 12 and haven't slowed down since then. I primarily do landscape photography, but also enjoy portraits, macro, and long exposure.
+
+![image](https://user-images.githubusercontent.com/70331884/151665748-890dadf0-0f9c-45e5-a3a9-440de7103fea.png)
 
 A collection of my work can be found [here](https://unsplash.com/@capturelight).
 
+## Singing
 
-## BINKS THE CAT!
+I began singing in senior year of high school when some friends from the choir (almost literally) dragged me to auditions. I had a blast in high school so I sang in the advanced men's chorus in my undergraduate.
+
+Here's a music video we filmed:
+
+_(Click to watch)_
+[![Watch the video](https://user-images.githubusercontent.com/70331884/151666077-33ea902a-655a-4aa1-aea3-ef2ac17fb0a8.png)](https://www.youtube.com/watch?v=m1aMyTGC2qc)
+
+
+## Playing with all animals I come in contact with
+
+I love animals, and relish all opportunities I get to hang out with them. I feel very lucky that my roommate has a very cute cat (pictured below).
+
 ![image](https://user-images.githubusercontent.com/70331884/151610871-4698fb9e-aa36-441f-bb93-45bbca16f7ce.png)
